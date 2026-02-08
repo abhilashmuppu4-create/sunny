@@ -13,6 +13,6 @@ Welcome to our Digital Marketing Agency website! This is a dedicated platform th
 Our agency consists of a team of experienced marketers, designers, and strategists who are passionate about helping your business succeed online.
 
 ## Contact Us
-For inquiries, please reach out to us at: contact@digitalmarketingagency.com
+For inquiries, please reach out to us at:9652702916 contact@digitalmarketingagency.com
 
 Thank you for visiting our website!
